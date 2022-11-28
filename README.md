@@ -7,3 +7,6 @@ from the start of protecting basic surviving rights（foxconn），to cracking l
 从单点偶发，到多地开花，只会引发更多的关注，可能引发更多人的共鸣。
 
 just in two days, things developing so fast!
+
+11.28
+原来民间有这么多不满的力量，孤勇者不孤单
