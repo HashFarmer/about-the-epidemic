@@ -9,4 +9,5 @@ from the start of protecting basic surviving rights（foxconn），to cracking l
 just in two days, things developing so fast!
 
 11.28
-原来民间有这么多不满的力量，孤勇者不孤单
+原来民间有这么多不满的力量，孤勇者不孤单。
+恐惧来源于何处？其实不是那一人，而是其狗腿子数量和忠诚度的恐惧。
